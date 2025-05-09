@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @CasperJohansen, im 23 years old
+- 👋 Hi, I’m @CasperJohansen, im 24 years old
 - 📫 How to reach me: casper@prototypez.dk
